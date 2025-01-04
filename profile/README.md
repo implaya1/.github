@@ -4,7 +4,7 @@
 
 **Implaya** is an innovative AI-powered mobile application that transforms written content into professional-quality videos. Whether you're creating a script or an article, Implaya seamlessly converts your text into visually engaging videos, complete with voiceovers and background music. This tool is designed for anyone interested in creating videos without the need for technical editing skills. The game provides an exciting opportunity to dive into video creation with minimal effort, thanks to its user-friendly interface and advanced AI technology.
 
-# Download Here: ☘️ https://heyapks.com/ ☘️
+# Download Here: ☘️ https://heyapks.com/implaya.html ☘️
 ![ảnh 12](https://github.com/user-attachments/assets/57a9010a-a72a-4e70-b9bf-b7cdadaab928)
 
 ## Key Features of Implaya
